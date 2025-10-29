@@ -12,7 +12,7 @@
 
 <p align="center"> ${\texttt{\color{#50630d}➤ Usually offtab , but will respond to whispers if possible !}}$ 
 
-<p align="center"> ${\texttt{\color{#d6ae2f}➤ ki , he / they , pro-fic , multishipper , adult}}$
+<p align="center"> ${\texttt{\color{#d6ae2f}➤ ki , he / they , pro-fic , multishipper}}$
 <p align="center"> <img width="542" height="193" src="https://i.pinimg.com/736x/7b/0d/46/7b0d46d0698ee13e25ccf075f46ebb52.jpg" alt="This may contain: an image of a comic page with green eyes"/>
 
 <p align="center"> $\Huge{\textsf{\color{#6f6318}➤ Other Ships I adore in fandoms !}}$

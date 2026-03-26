@@ -17,33 +17,31 @@
 <p align="center"> <img width="430" height="210" src="https://i.pinimg.com/736x/c4/10/71/c41071b2343f984092a3988ff386dbc6.jpg" alt="This may contain: a woman laying on top of a bed in a bedroom"
 />
 
-<p align="center"> $\Huge{\textsf{\color{#6f6318}➤ Other Ships I adore in fandoms !}}$
-<p align="center"> ${\texttt{\color{#959a83}꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂}}$
+$\Huge{\textsf{\color{#6f6318}➤ Other Ships I adore in fandoms !}}$
+${\texttt{\color{#959a83}꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂}}$
 
-<p align="center"> ${\texttt{\color{#e23636}Marvel; any loki ships , stony , etc. (I'm too tired to name them all)}}$
+${\texttt{\color{#e23636}Marvel; any loki ships , stony , etc. (I'm too tired to name them all)}}$
 
-<p align="center"> ${\texttt{\color{#e23636}DC; any damian wayne ships , batstantine , twobat , superbat , superlex , dickstroke , jaytim , brudick , barrybart , midpollo , etc.}}$
+${\texttt{\color{#e23636}DC; any damian wayne ships , batstantine , twobat , superbat , superlex , dickstroke , jaytim , brudick , barrybart , midpollo , etc.}}$
 
-<p align="center"> ${\texttt{\color{#e23636}Gravity falls; pinecest , stancest , billford , dipford , stanbel , etc.}}$
+${\texttt{\color{#e23636}Team Fortress 2; heavymedic , spymedic , spyscout.}}$
 
-<p align="center"> ${\texttt{\color{#e23636}Team Fortress 2; heavymedic , spymedic , spyscout.}}$
+${\texttt{\color{#e23636}extra; hankcon , dudecest , poisonburger , Skeleton dance , doctorcest , tensimm / thoschei , etc}}$
 
-<p align="center"> ${\texttt{\color{#e23636}extra; hankcon , dudecest , poisonburger , Skeleton dance , doctorcest , tensimm / thoschei , etc}}$
+$\Huge{\textsf{\color{#7c6136}➤ Fandoms I am currently active in .}}$
 
-<p align="center"> $\Huge{\textsf{\color{#7c6136}➤ Fandoms I am currently active in .}}$
+${\texttt{\color{#7c6136}DCU}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}DCU}}$
+${\texttt{\color{#7c6136}Marvel}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Marvel}}$
+${\texttt{\color{#7c6136}Doctor Who}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Doctor Who}}$
+${\texttt{\color{#7c6136}The Boys}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}The Boys}}$
+${\texttt{\color{#7c6136}Good Omens}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Good Omens}}$
+${\texttt{\color{#7c6136}Hannibal}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Hannibal}}$
+$\Huge{\textsf{\color{#547f3a}Thank you for reading!}}$
 
-<p align="center"> $\Huge{\textsf{\color{#547f3a}Thank you for reading!}}$
-
-<p align="center"> <img src="https://i.pinimg.com/736x/83/85/78/83857872af3c428e3f01e604ade0fc24.jpg" alt="Story pin image"/>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mfastbreak&cover_image=true&theme=default&show_offline=false&background_color=4e4f55&interchange=false&profanity=false&bar_color=94a6b8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)

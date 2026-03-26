@@ -26,7 +26,7 @@
 
 <p align="center"> ${\texttt{\color{#e23636}Team Fortress 2; heavymedic , spymedic , spyscout.}}$
 
-<p align="center"> ${\texttt{\color{#e23636}extra; hankcon , dudecest , poisonburger , Skeleton dance , etc.}}$
+<p align="center"> ${\texttt{\color{#e23636}extra; hankcon , dudecest , poisonburger , Skeleton dance , doctorcest , tensimm / thoschei , etc}}$
 
 <p align="center"> $\Huge{\textsf{\color{#7c6136}➤ Fandoms I am currently active in .}}$
 

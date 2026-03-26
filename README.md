@@ -34,13 +34,13 @@
 
 <p align="center"> ${\texttt{\color{#7c6136}Marvel}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Forsaken}}$
+<p align="center"> ${\texttt{\color{#7c6136}Doctor Who}}$
 
 <p align="center"> ${\texttt{\color{#7c6136}The Boys}}$
 
 <p align="center"> ${\texttt{\color{#7c6136}Good Omens}}$
 
-<p align="center"> ${\texttt{\color{#7c6136}Gravity Falls}}$
+<p align="center"> ${\texttt{\color{#7c6136}OFMD}}$
 
 <p align="center"> $\Huge{\textsf{\color{#547f3a}Thank you for reading!}}$
 
